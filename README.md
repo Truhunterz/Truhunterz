@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Truhunterz
+- 👀 I’m interested in Web Development
+- 🌱 I’m currently learning IT
+- 💞️ I’m looking to collaborate on Freetime
+- 📫 How to reach me Code me
+- 😄 Pronouns: Male la apa lagi
+- ⚡ Fun fact: Rugby 4 Lyfe
