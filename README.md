@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on Freetime
 - 📫 How to reach me Code me
-- 😄 Pronouns: Male la apa lagi
+- 😄 Pronouns: Batman
 - ⚡ Fun fact: Rugby 4 Lyfe
